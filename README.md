@@ -13,4 +13,4 @@ la memoria y el proceso creativo manual.
 ## Contacto
 - Web: https://gabrieltesio.com  
 - Instagram: https://instagram.com/gabrieltesio  
-- Behance: https://behance.net/gabrieltesio
+- E-mail: gabriel.tesio@gmail.com
