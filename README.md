@@ -10,9 +10,6 @@ la memoria y el proceso creativo manual.
 - Carbón
 - Papel
 
-## Portfolio web
-👉 https://gabrieltesio.github.io/Arte-en-Carbon/
-
 ## Contacto
 - Web: https://gabrieltesio.com  
 - Instagram: https://instagram.com/gabrieltesio  
